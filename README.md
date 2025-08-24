@@ -1,0 +1,13 @@
+285万字经典魔幻现实主义长篇《人间凯文日记》TXT纯文本下载：（中国禁文，地下圣经，珍稀版本，下载收藏）
+简体版下载地址1：
+https://drive.google.com/file/d/1mAUGXZrVS_vGFGXM_GXr4pate1njipgH/view?usp=sharing
+简体版下载地址2：
+https://drive.google.com/file/d/1XwY9TO5hz1Or2zDgVxc8joad2vAZ6jDM/view?usp=sharing
+简体版下载地址3：
+https://drive.google.com/file/d/1-d5-zVnsmHjSdXmtUdATfgh5qGyIa6FB/view?usp=sharing
+繁体版下载地址1：
+https://drive.google.com/file/d/1GO2BL2xeTfEq0QwEecSP5Jpf48EffoJd/view?usp=sharing
+繁体版下载地址2：
+https://drive.google.com/file/d/1XLx490fshzLeI9DNzxFZX2Gbh2VS4fHQ/view?usp=sharing
+繁体版下载地址3：
+https://drive.google.com/file/d/1qdwIy8ne6fVZQNEDd0-dyRrlqvDKSv5Y/view?usp=sharing
